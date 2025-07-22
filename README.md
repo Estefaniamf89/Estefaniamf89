@@ -31,7 +31,7 @@
 
 ## 🌐 ¿Conectamos?
 
-- 💼 LinkedIn: [https://www.linkedin.com/in/estefania](https://www.linkedin.com/in/estefania) 
+- 💼 LinkedIn: [https://www.linkedin.com/in/estefanía-maldonado-fanego](https://www.linkedin.com/in/estefanía-maldonado-fanego) 
 - 🌍 Portafolio web: próximamente...
 
 ---
